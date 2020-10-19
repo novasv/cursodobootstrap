@@ -1,0 +1,2 @@
+# cursodobootstrap
+demonho to perdidassoooo
